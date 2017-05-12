@@ -1,1 +1,1 @@
-Everyone loves Taylor Swift.
+Everyone tolerates Taylor Swift.
